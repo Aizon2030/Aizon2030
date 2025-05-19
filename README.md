@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aizon2030
+- 👋 Hi, I’m @Neurona
 - 👀 I'm very interested in Artifical intelligence and it's development in the future
 - 🌱 I’m currently learning at school
 - 💞️ I’m looking to collaborate on ..
